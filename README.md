@@ -1,4 +1,5 @@
 dmn- 👋 Hi, I’m @Rennylsonlemos19
+-
 s- 🌱 I’m currently learning  desenvolvimento de sistema!
 - 💞️ atualmente estou a procura de uma vaga de estagio para aprimorar meu conhecimento!
 - 📫 How to reach me  (14) 99151-0207
